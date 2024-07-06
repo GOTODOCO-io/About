@@ -1,8 +1,8 @@
 # Welcome to GOTODOCO 
 
-## About
-We are proudly part of the GOTODOCO team.
-Think of us like the information. Use us for information sources and references. And GOTODOCO is the creation and doing part.
+## Giving DOCO and content the stage it deserves
+
+We are proudly part of the GOTODOCO Enterprise group.
 
 ## Content types
 
