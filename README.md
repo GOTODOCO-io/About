@@ -2,7 +2,15 @@
 
 ## Giving DOCO and content the stage it deserves
 
-We are proudly part of the GOTODOCO Enterprise group.
+We are ALL about intent and purpose.
+
+### Intent = Simple
+Intent = Simple
+Engage, understand and validate your concept and content.
+
+### Purpose = Sense
+Engage, create and deliver for **your** audience.
+
 
 ## Content types
 
