@@ -5,7 +5,7 @@
 We are ALL about intent and purpose.
 
 ### Intent = Simple
-Engage, understand and validate your concept and content.
+Engage, understand and validate your content.
 
 ### Purpose = Sense
 Create and deliver for **your** audience.
