@@ -6,11 +6,11 @@ We are ALL about intent and purpose.
 
 ### Intent = Simple
 Intent = Simple
+
 Engage, understand and validate your concept and content.
 
 ### Purpose = Sense
-Engage, create and deliver for **your** audience.
-
+Create and deliver for **your** audience.
 
 ## Content types
 
